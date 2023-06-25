@@ -1,5 +1,4 @@
-Chapter 10: Conclusion: Summary of Key Points
-=============================================
+# Summary of Key Points
 
 In this book, we have discussed the importance of self-awareness in improving concentration and achieving personal and professional goals. Here is a summary of the key points covered in each chapter:
 
