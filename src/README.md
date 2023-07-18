@@ -10,7 +10,4 @@ In addition to providing practical guidance and advice, "The Power of Self-Aware
 
 Overall, "The Power of Self-Awareness" is an essential guide for anyone looking to improve their concentration and achieve greater success. By developing self-awareness and understanding your unique strengths and weaknesses, you'll be able to unlock your full potential and achieve your goals with greater ease and efficiency.
 
-
-
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
