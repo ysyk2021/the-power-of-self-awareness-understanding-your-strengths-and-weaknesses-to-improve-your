@@ -2,7 +2,6 @@
 
 - [Chapter 1: Introduction](README.md)
   - [Importance of self-awareness](chapter-1-1.md)
-  - [Overview of the book's contents](chapter-1-2.md)
 - [Chapter 2: Understanding Self-Awareness](chapter-2.md)
   - [Definition of self-awareness](chapter-2-1.md)
   - [Common misconceptions about self-awareness](chapter-2-2.md)
