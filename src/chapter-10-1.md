@@ -2,8 +2,7 @@
 
 In this book, we have discussed the importance of self-awareness in improving concentration and achieving personal and professional goals. Here is a summary of the key points covered in each chapter:
 
-Introduction
------------------------
+-----------
 
 Developing self-awareness is critical in improving concentration and achieving success. Self-awareness involves understanding one's thoughts, emotions, and behaviors.
 
