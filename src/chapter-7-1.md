@@ -1,5 +1,3 @@
-Importance of Environment on Self-Awareness and Concentration
-======================================================================
 
 In this chapter, play a pivotal role in influencing our mental state, focus, and overall well-being. By recognizing the impact of our environment, we can create conducive settings that enhance self-awareness and foster optimal concentration. This chapter explores how various aspects of our environment contribute to these crucial aspects of personal growth.
 

@@ -1,5 +1,3 @@
-Tips for Maintaining Motivation and Commitment to Self-Awareness
-=========================================================================
 
 In this chapter,sights to help individuals stay motivated on their journey of self-discovery and personal growth.
 

@@ -1,5 +1,3 @@
-Chapter 4: The Role of Emotions in Self-Awareness
-=================================================
 
 Importance of Emotions in Self-Awareness
 ----------------------------------------

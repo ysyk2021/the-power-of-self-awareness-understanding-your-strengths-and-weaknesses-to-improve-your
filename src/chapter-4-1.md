@@ -1,5 +1,3 @@
-Importance of Emotions in Self-Awareness
-=================================================
 
 In this chapter,an experience, and understanding and managing them is key to developing a deeper level of self-awareness. This chapter focuses on highlighting the importance of emotions in self-awareness.
 

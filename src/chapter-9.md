@@ -1,5 +1,3 @@
-Chapter 9: Applying Self-Awareness to Personal and Professional Life
-====================================================================
 
 Self-awareness is a valuable skill that can be applied to various domains of life, including personal and professional. In this chapter, we will explore the importance of applying self-awareness to personal and professional life, strategies for using self-awareness to improve concentration in various domains, and examples of individuals who successfully applied self-awareness to personal and professional life.
 

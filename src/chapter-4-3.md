@@ -1,5 +1,3 @@
-Strategies for Regulating Emotions to Improve Concentration
-====================================================================
 
 In this chapter,y, we can enhance our concentration and productivity. This chapter will provide you with practical techniques to achieve emotional balance and optimize your concentration.
 
