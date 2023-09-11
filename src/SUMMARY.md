@@ -37,3 +37,4 @@
   - [Examples of individuals who successfully applied self-awareness to personal and professional life](chapter-9-3.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
+- [Our Other Books](other-books.md)
